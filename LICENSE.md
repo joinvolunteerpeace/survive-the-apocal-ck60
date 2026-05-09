@@ -1,4 +1,4 @@
-
+smart survive the apocalypse Scripts offers the most advanced survive the apocalypse Script, with invisibility and teleport. Perfect for dominating
 
 
 
